@@ -1,4 +1,4 @@
-### zzdd
+### zzd
 
 - 👋 Hi, I’m @zzd1645
 - 👀 I’m interested in ...
